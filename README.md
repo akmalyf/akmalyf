@@ -2,7 +2,7 @@
 > - 🏢 I'm currently working on PT Belanja Pasti Indonesia
 > - 🧑🏽‍💻 As a Software Engineer
 > - 📫 How to reach me: akmalyasykur@gmail.com
-> - 🖤 I love coding, gaming, reading and more...
+> - 🖤 I love coding and gaming
 
 
 ## 🌐 Socials:
